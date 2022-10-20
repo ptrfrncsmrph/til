@@ -36,10 +36,6 @@ To add a little bit of color:
   the toil of childcare that I spend all of this time on podcasts or mindless
   games (and bad habits like reading Reddit/News) and don't have contiguous time
   to spend on creative projects.
-- **Childcare** is the time I spend with my kids, almost always with my wife as
-  well. We're privileged to have our older son in 9-5 preschool and an amazing
-  nanny through the day for our baby. Despite this help, time spend on the
-  morning routine, dinner, bedtime routine, and weekends sure adds up.
 
 I absolutely love my kids, and to be clear I'm thrilled to have the time to
 spend with them, especially when they're young. However the impact on how I
